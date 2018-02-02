@@ -1,0 +1,6 @@
+1115................
+....................
+
+exei ilopoiithei olokliri i leitourgia, ginetai elegxos eisodou dedomenwn. Se kapoia simeia (opws i eksodos apo to ansanser) 
+den ginetai taksinomisi ston arithmo protereotitas, giati i lista pou xrisimopoieitai leitourgei san oura, opote einai idi 
+taksinomimena mesa ta dedomena.
